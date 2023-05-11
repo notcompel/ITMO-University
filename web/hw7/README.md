@@ -1,0 +1,1 @@
+###Условие: https://docs.google.com/document/d/1LRD9nn23zuRlglzT7eXIOEcN3Z9jNiZOCVDgqgrQBi0
